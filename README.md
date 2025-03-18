@@ -1,3 +1,5 @@
+I'm working on a larger project for now so consider all development for my public projects halted for now (sorry but english is not my main language)
+--------------------------------------------------------Original message------------------------------------------------------------------
 - 👋 Hi, I’m @louis-a11y
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning English
